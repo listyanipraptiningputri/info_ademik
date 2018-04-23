@@ -1,1 +1,0 @@
-# infoak_ademik
